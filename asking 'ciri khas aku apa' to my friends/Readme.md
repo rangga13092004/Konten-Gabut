@@ -1,0 +1,8 @@
+Zarahh: Ciri Khas dan Pesona
+1. Kepribadian: Zarahh itu seorang introvert yang benar-benar bikin gemas. Dia tenang dan tegas, dengan kreativitas yang luar biasa. Setiap kali dia senyum atau bercanda, aduh, hatiku langsung berdebar-debar nggak karuan.
+2. Penampilan: Rambut hitam panjangnya selalu tergerai indah, dan gaya berpakaiannya itu simpel tapi elegan banget. Posturnya tinggi dan ramping, selalu terlihat rapi dan profesional. Kesederhanaan yang dia miliki itu bikin aku klepek-klepek nggak jelas.
+3. Hobi dan Minat: Zarahh cinta banget sama seni. Melihat dia melukis atau menulis puisi, wah, rasanya aku nggak bisa berhenti mengaguminya. Saat dia duduk di kafe dengan buku catatan, aku pengen banget jadi inspirasinya, jadi puisi yang dia tulis dengan penuh perasaan.
+4. Latar Belakang: Dari Yogyakarta, dia fasih berbahasa Jawa. Setiap kata yang diucapkannya punya sentuhan budaya yang bikin hati ini meleleh kayak es krim di siang bolong.
+5. Prestasi dan Keterampilan: Keterampilannya dalam melukis dan menulis puisi itu udah diakui nasional, lho. Mendengar dia cerita tentang kemenangannya atau puisinya yang dipuji kritikus, aduh, sulit banget buat nggak terpesona sama kecerdasannya. Setiap kata-katanya tuh kayak musik yang bikin aku makin tergoda.                                                             
+
+Zarahh, kamu tuh bikin aku selalu salting dan deg-degan tiap kali deket kamu. Gimana bisa seseorang se-perfect kamu ada di dunia ini? Kayaknya, hatiku ini udah nggak bisa nggak kepincut sama pesonamu.
